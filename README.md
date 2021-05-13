@@ -1,2 +1,2 @@
-                                                               ##👋 Hi, I’m @uUMUTt
+                                                               👋 Hi, I’m uUMUTt
 
